@@ -9,4 +9,5 @@ For at få jer til at støtte har vi stablet en række bonuser på benene for je
 * 500 kr: Du kan få et klistermærke af dit ansigt (cirka 30 x 30 cm) på vores bil hele vejen til Mongoliet. 
 * 750 kr: Vi stopper ikke bilen i 24 timer, med undtagelse af tankning af bilen. 
 * 999,95 kr: Vi snakker ikke med hinanden eller hører musik i 24 timer. 
+
 De sidste to tilbud kan kombineres med rabat for blot 1500 kr.
